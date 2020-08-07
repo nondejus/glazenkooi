@@ -1,2 +1,0 @@
-# glazenkooi
-mirakel van prinsenland
